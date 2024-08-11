@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello ,<br>my name is Abdelwahab Amhal i'm 22 yo , studying in 1337 school in morocco,<br>i study software engineer .
+Hello ,<br>my name is Abdelwahab Amhal i'm 21 yo , studying in 1337 school in morocco.
 
 
 ## 🌐 Socials:
